@@ -1,0 +1,2 @@
+# GentyT
+İnş silinmez
